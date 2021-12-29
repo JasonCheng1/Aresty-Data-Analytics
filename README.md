@@ -1,3 +1,3 @@
 # Aresty-Data-Analytics
 
-[More Info!](https://webapps.rutgers.edu/urs/projects/projectdetails.aspx?id=10273)
+[Click Here For More Info!](https://webapps.rutgers.edu/urs/projects/projectdetails.aspx?id=10273)
